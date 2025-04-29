@@ -1,0 +1,1 @@
+# 2024-Forbes-billionaires-analyssi-with-Excel
